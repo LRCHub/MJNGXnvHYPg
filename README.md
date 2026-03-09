@@ -1,0 +1,175 @@
+# Eminem – シング・フォー・ザ・モーメント
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+These ideas are nightmares
+for white parents
+whose worst fear is
+a child with dyed hair
+and who likes earrings
+Like whatever they
+say has no bearing,
+it's so scary in a house
+that allows no swearing
+to see him walking around with
+his headphones blaring
+alone in his own zone
+cold and he don't car
+He's a problem child
+and what bothers him
+all comes out
+when he talks about, his fucki
+cuz he just hates him so bad
+that he blocks him out
+If he ever saw him again he'd
+probably knock him out
+His thoughts are wacked
+he mad so he's talkin' back
+talkin' black, brainwashed
+from rock and rap
+He sags his pants, dorags
+and a stocking cap,
+his stepfather hit him
+so he socked him back
+and broke his nose, his house
+is a broken home
+There's no control, he just
+let's his emotions go
+C'mon! Sing with me (Sing!)
+Sing for the year (Sing It)
+Sing for the laughter
+sing for the tear (C'mon!)
+Sing it with me Just for today
+Maybe tomorrow The good Lord
+will take you away
+Entertainment is changin'
+intertwinin' with gangstas
+in the land of the killers
+a sinner's mind is
+a sanctum unholy
+only unholy
+only have one homie
+only this gun
+lonely cuz don't anyone know me
+Yet everybody just feels
+like they can relate
+I guess words are a mothafucka
+they can be great
+or they can degrate, or even
+worse they can teach hate
+It's like these kids
+hang on every
+single statement we make
+like they worship us, plus all
+the stores ship us platinum
+now how the fuck did
+this metamorphosis happen
+From standin' on corners
+and porches just rappin'
+to havin' a fortune
+no more kissin' ass
+But then these
+critics crucify you
+journalists try to burn you, fa
+attorneys all want a turn at you
+To get they hands on
+every dime you have
+they want you to lose your
+mind every time you mad
+So they can try to make you out
+to look like a loose cannon
+Any dispute won't hesitate
+to produce handguns
+That's why these prosecutors
+wanna convict me
+strictly just to get me off
+of these streets quickly
+But all they kids be listenin'
+to me religiously
+so I'm signin' CDs
+while police finge
+They're for the judge's daughter
+but his grudge is against m
+If I'm such a fuckin' menace
+this shit doesn't make sense B
+It's all political, if my music
+is literal, and I'm a crimin
+how the fuck can
+I raise a little girl
+I couldn't I wouldn't be fit to
+You're full of shit too
+Gue C'mon! Sing with me (Sing!)
+Sing for the year (Sing It)
+Sing for the laughter sing for
+Sing it with me Just for today
+Maybe tomorrow The good Lord
+will take you away
+They say music can alter moods
+and talk to you
+well can it load a gun up
+for you, and cock it too
+Well if it can, then the next
+time you assault a dude
+just tell the judge it was
+my fault and I'll get sued
+See what these kids do is hear
+about us totin' pistols
+and they want to get one cuz
+they think the shit's cool
+not knowin' we really
+just protectin' ourselves
+we entertainers
+of course the shit's affectin
+our sales, you ig
+noramus
+self, we just explain it
+and then we get our
+checks in the mail
+It's fucked up ain't it
+How we can come
+from practically nothing
+to being able to have any fuckin
+thing that we wanted
+That's why we sing for
+who don't have a thing
+except for a dream
+and a fuckin' rap magazine
+who post pinup pictures on
+they walls all day long
+idolize they favorite rappers
+and know all they songs
+Or for anyone who's ever been
+through shit in their lives
+till they sit and they cry at
+night wishin' they'd die
+Till they throw on a rap record
+and they sit, and they vibe
+We're nothin' to you
+but we're the fuckin
+shit in they eyes
+that's why we seize the moment
+try to freeze it and own it
+squeeze it and hold it
+cuz we consider
+these minutes golden
+and maybe they'll admit it when
+Just let our spirits live on
+through our lyrics that you
+hear in our songs
+and we can
+Sing with me (Sing!)
+Sing for the year (Sing It)
+Sing for the laughter sing
+for the tear (C'mon!)
+Sing it with me Just for today
+Maybe tomorrow The good Lord
+will take you away
+Sing with me (Sing!)
+Sing for the year (Sing It)
+Sing for the laughter
+sing for the tear (C'mon!)
+Sing it with me Just for today
+Maybe tomorrow The good Lord
+will take you away
+```
