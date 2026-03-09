@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "シング・フォー・ザ・モーメント",
+  "base_artist": "Eminem",
+  "createdAt": "2026-03-09T14:47:59.173206Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Sing For The Moment",
+      "artist": "Eminem",
+      "has_synced": false,
+      "path": "select/pl_01_Sing_For_The_Moment_Eminem.txt"
+    }
+  ]
+}
